@@ -1,4 +1,4 @@
-Hello People And Welcome, My name is Trent SheltØn
+Hello People And Welcome!
 =====================================================================================================================================
 
 Welcome to my Github page ඞ
